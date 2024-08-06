@@ -1,5 +1,5 @@
-##**bem vindo ao meu perfil**🫦
-meu nomee é yasmin da silva
+##**bem vindo ao meu perfil**🫦💋
+meu nome é yasmin da silva
 
 -estou estudando o alura.
 
@@ -7,6 +7,8 @@ meu nomee é yasmin da silva
 
 -utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos.
 
-![](https://media.tenor.com/nX3BdES-doYAAAAi/timao.gif)
+![](https://media1.tenor.com/m/CJ9QZnaa4WgAAAAd/christian-grey-jamie-dornan.gif)
 ![](https://media1.tenor.com/m/MCBkr6dWLkUAAAAd/corinthians-rodrigo-garro.gif)
-![](https://media1.tenor.com/m/nwZns3UiGgAAAAAC/rainbow-flag-simpson.gif)
+![](https://media1.tenor.com/m/E8LKvzsigeUAAAAd/mcqueen-lightning.gif)
+
+
